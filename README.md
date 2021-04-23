@@ -1,4 +1,5 @@
-# Meustrabalhos.xtxt
-# Meustrabalhos.xtxt
-Vamos tentar uma receita
-# Meustrabalhos.xtxt
+## De Steve Oliver ##
+
+** A certeza do sucesso é a insistencia na buscar por saber e querer conseguir algo. **
+
+
